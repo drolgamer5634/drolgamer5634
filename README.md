@@ -1,0 +1,4 @@
+-Hi, I’m @drolgamer5634
+-I’m interested in hardware projects and coding
+-i also like to mod phones, laptops, desktops and gaming consoles
+-sometimes i code programs for the projects i do but sometimes also just for fun
